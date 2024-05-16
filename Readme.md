@@ -30,7 +30,7 @@ For those seeking in-depth analysis, Details dashboard offers comprehensive loan
 2️⃣ Knowledge-driven Decisions: Stakeholders benefit from real-time updates, facilitating informed decisions regarding loan approvals and risk mitigation strategies.
 These dashboards represent our commitment to delivering impactful solutions that drive efficiency and informed decision-making in loan management.
 
-**[Click Here for the live Dashboard]([https://www.novypro.com/project/web-marketing-dashboard-5](https://www.novypro.com/profile_projects/nileshjhalani?Popup=memberProject&Data=1715255407644x453209495416400500)).**
+**[Click Here for the live Dashboard](https://www.novypro.com/profile_projects/nileshjhalani?Popup=memberProject&Data=1715255407644x453209495416400500)**
 
 Final Dashboard : 
 
